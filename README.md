@@ -1,1 +1,0 @@
-# sapo culiao si ves esto y no eres mi papu
